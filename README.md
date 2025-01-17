@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @remgrow
 - 👀 I’m interested in pretty much everything lmao
 - 🌱 I’m currently learning how all of this works 
-- 💞️ I’m looking to collaborate on make remilio programming good
+- 💞️ I’m looking to collaborate on make me a better guy
 - 📫 How to reach me on x at @cryptogrower_
-- 😄 Pronouns:normal 
+- 😄 Pronouns:i'm / normal 
 - ⚡ Fun fact: i don't know hot to code
 
 <!---
