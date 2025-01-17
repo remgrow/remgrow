@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on make me a better guy
 - 📫 How to reach me on x at @cryptogrower_
 - 😄 Pronouns:i'm / normal 
-- ⚡ Fun fact: i don't know hot to code
+- ⚡ Fun fact: i don't know how to code
 
 <!---
 remgrow/remgrow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
